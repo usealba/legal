@@ -1,5 +1,5 @@
 # Privacy Policy
-> This is the privacy policy for [alba.quest](https://alba.quest) and its affiliated services.
+> This is the privacy policy for [alba.quest](https://alba.quest) and its services.
 
 Your privacy is important to us. It Alba's policy to respect your privacy regarding any information we may collect from you across our website, https:/alba.quest, and other sites we own and operate.
 
